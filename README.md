@@ -14,3 +14,6 @@ Here's some art I made, because why not.<br>
 That's me, by the way! The silly little girl in the image. What am I plotting? That stays between me and God.<br>
 <br>
 God as in Allied Mastercomputer, if you were curious.
+<br><br>
+My last name? Oh, it's Junipyr Gaster.<br>
+<img width="34.5" height="78" alt="Wdgaster" src="https://github.com/user-attachments/assets/3f30593a-877a-4fe6-afc0-20e8030ec02e" />
